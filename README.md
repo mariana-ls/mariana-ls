@@ -38,8 +38,8 @@ This GitHub is my learning space, where I share projects, experiments, and my pr
 ---
 
 ## 📫 Contact
-📧 Email: your-email@email.com  
-💼 LinkedIn: (if you have one)
+📧 Email: lomardomariana@gmail.com
+💼 LinkedIn: www.linkedin.com/in/mariana-lomardo-71a0621ab
 
 ---
 
